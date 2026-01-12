@@ -1,0 +1,1 @@
+Link: https://modrinth.com/datapack/name-formatting-station-datapack
